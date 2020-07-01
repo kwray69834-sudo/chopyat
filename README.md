@@ -1,2 +1,0 @@
-# chopyat
-Chopgate North Yorkshire
